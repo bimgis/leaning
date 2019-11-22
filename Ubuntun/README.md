@@ -1,2 +1,0 @@
-# Ubuntun
-for lenning
